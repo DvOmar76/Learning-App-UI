@@ -53,13 +53,3 @@ https://www.ﬁgma.com/design/xlEI4XXk7ZRzTRxfLc46fE/Course-EdTech-Mobile-App-(C
 
 https://www.ﬁgma.com/design/xlEI4XXk7ZRzTRxfLc46fE/Course-EdTech-Mobile-App-(Community)?node-id=0-1&p=f&t=FgLZdcCvSivg3qjR-0
 
-💻 GitHub Submission
-
-⏰ Deadline:
-
-Your project must be submitted by 1/5/2025 , before 10:00 AM.
-
-✨ Reminder:
-
-"Learning never stops! Build
-great UI, and let your app inspire others." 🚀
